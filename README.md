@@ -1,1 +1,1 @@
-# Análise
+# A exportação de vinhos do Rio Grande do Sul tem desempenhado um papel crucial na economia local ao longo dos anos. O estado é conhecido por sua produção significativa de vinhos e outros derivados da uva, representando mais de 90% da produção nacional
